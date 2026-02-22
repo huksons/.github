@@ -5,6 +5,9 @@
   ## Technical Transformation That Scales | Enterprise Managed Services
 
   **99.99% Infrastructure Uptime | 95%+ Project Success Rate | 200+ Enterprises Served**
+
+---
+  [**LinkedIn**](https://www.linkedin.com) • [**X (Twitter)**](https://x.com) • [**Facebook**](https://www.facebook.com) • [**Instagram**](https://www.instagram.com)
   
 </div>
 
